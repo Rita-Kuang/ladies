@@ -1,1 +1,1 @@
-Make it look goot!
+Make it look good!
